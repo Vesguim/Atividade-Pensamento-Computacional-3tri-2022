@@ -1,0 +1,1 @@
+# Atividade-Pensamento-Computacional-3tri-2022
